@@ -5,7 +5,7 @@ FPSuniverse是一个游戏客户端为你体验玩别的客户端
 作者有2008-2022丨Server second killer
 纪狗气死我了 𝙋𝙪𝙓𝙞𝙣𝙉𝙖𝙣普信男 EXOTIC 磊磊DD
 话多 喵酱 7个开发者并强大的做出了未来FPSuniverse
-下一个未来版本作者二等级secret丨2020-2022
+下一个未来版本名字作者二等级secret丨2020-2022
 
 更新内容
 更直观的药水
